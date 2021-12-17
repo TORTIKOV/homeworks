@@ -1,2 +1,1 @@
-# homeworks
-Sarmat's homeworks and backups
+# AHAHHAAHAH Я УДАЛИЛИ ВСЁ АХВХАХВАХВ
